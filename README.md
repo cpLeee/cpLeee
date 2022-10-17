@@ -9,7 +9,7 @@
 - Data Structures and Algorithms
 - Personal Projects
 
-🦋 When I'm not coding, I'm reading new books, hiking or finding new DIY inspirations through Pinterest to create or re-create
+🦋 When I'm not coding- I'm reading new books, hiking or finding new DIY inspirations through Pinterest to create or re-create
 
 📫 How to reach me:
 
