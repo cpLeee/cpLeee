@@ -1,5 +1,5 @@
 ## Hi, I’m Leah Chen! 👋
-### 👩🏻‍💻 I'm a Software Engineer and DIY Crafting Enthusiast obsessed with improving user experiences. 
+### 👩🏻‍💻 I'm a Software Engineer and DIY Crafting Enthusiast, Obsessed with Improving User Experiences 
 👀 Portfolio: Under Construction 🚧
 
 🤔 Constantly curious about new technologies and learning more about building effective user interfaces
